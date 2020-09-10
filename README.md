@@ -2,7 +2,7 @@
 
 ### Blogs
 
-[Post Covid-19 - Post History](#)
+- 10 September 2020 [Post Covid-19 - Post History](https://enterlifeonline.github.io/Post-Covid-19-Post-History/)
 
 - - -
 
